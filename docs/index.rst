@@ -1,64 +1,27 @@
-Cara Mendapatkan Penghasilan Uang dari TikTok
+The Third Wave of Coffee Movement in the 21st Century
 ============================
 
-Saat ini, mulai dari anak-anak hingga orang dewasa di seluruh penjuru dunia mungkin sudah tak asing lagi dengan hadirnya aplikasi TikTok. Hal tersebut dikarenakan selain menghibur, ternyata aplikasi TikTok ini juga dapat memberikan penghasilan tambahan bagi penggunanya. Simak pembahasan di bawah untuk mengetahui bagaimana cara mendapatkan uang dari TikTok dengan mudah.
+Over the past few decades, a remarkable transformation has taken place in the world of coffee. A new wave has emerged, bringing with it a profound shift in the way coffee is perceived, sourced, roasted, brewed, and enjoyed. This movement, aptly named the "third wave coffee," has revolutionized the coffee industry, elevating it to an art form and redefining the entire coffee experience.
 
-Mengenal Apa itu TikTok?
----------------------
+The first wave of coffee was marked by the proliferation of mass-produced, pre-ground coffee that prioritized convenience and accessibility. It was an era when coffee was often viewed as a simple commodity, devoid of character or distinction. However, as the second wave arrived, coffee underwent a significant evolution. Specialty coffee shops like Starbucks introduced higher-quality beans, espresso-based beverages, and an increased focus on the coffeehouse ambiance.
 
-TikTok merupakan salah satu platform media sosial yang memungkinkan penggunanya merekam dan mengunggah video singkat dengan diiringi oleh musik tambahan. Aplikasi yang berasal dari China ini awalnya bernama Douyin dengan pencapaian sekitar 100 juta pengguna hanya dalam waktu 1 tahun. 
+But it was the advent of the third wave that truly transformed coffee culture. The movement emerged in the late 20th century, gaining momentum in the 21st century, and it set out to challenge and redefine the way we experience coffee.
 
-Keberhasilan tersebut akhirnya membuat perusahaannya, ByteDance melakukan rebranding dengan nama TikTok dengan tujuan supaya dapat lebih mendunia dan mencapai pasar global. Meskipun kemudian TikTok menjadi viral di seluruh belahan dunia, namun awalnya kesan pertama saat TikTok masuk ke Indonesia dipandang sebelah mata bahkan sempat diblokir oleh Kominfo.
+At the heart of the third wave philosophy lies a deep appreciation for the entire coffee journey, from farm to cup. Coffee connoisseurs began seeking direct relationships with coffee farmers, valuing sustainability, fair trade principles, and ethical sourcing practices. They championed transparency and traceability, celebrating the stories of the farmers and the unique qualities of each coffee bean.
 
-Seiring dengan perkembangan waktu, popularitas TikTok kembali naik dan mendapat panggung besar terutama ketika pandemi berlangsung. Di bulan Agustus 2020, TikTok berhasil tembus angka 22,2 juta pengguna. 
+In the world of third wave coffee, every cup tells a tale. It is a celebration of the diversity of coffee origins, with enthusiasts exploring beans from various regions around the globe. These beans are meticulously roasted to unlock their inherent flavors and complexities. Artisanal roasters take pride in their craft, carefully monitoring the roasting process to achieve optimal taste profiles and preserve the distinctive characteristics of each bean.
 
-Cara Mendapatkan Uang dari TikTok bagi Pemula
----------------------
+The role of the barista also takes center stage in the third wave coffee movement. They are no longer mere servers but skilled artisans who approach coffee-making with passion and precision. Whether it's the meticulous pour-over technique or the artful extraction of a single-origin espresso, baristas immerse themselves in the artistry of brewing, aiming to showcase the full potential of the coffee in the cup.
 
-Berbeda dengan platform sosial media lain seperti YouTube dengan AdSense-nya, TikTok tidak memberikan fee untuk setiap ads yang dipromosikan pada akun penggunanya. Namun, TikTok memiliki cara untuk membuat penggunanya mendapatkan penghasilan tambahan baik dalam kategori pemilik brand, akun personal, atau bahkan pengguna pemula. Beberapa hal yang bisa dilakukan dengan aplikasi TikTok
+Beyond the brewing methods, third wave coffee is also a cultural movement. It has created a community of coffee lovers who appreciate the nuances and intricacies of the bean. The emphasis on education and knowledge-sharing has led to an increased awareness among consumers, enabling them to make more informed choices about their coffee preferences.
 
-Melihat Konten VideoShare Kode ReferralMembuat Konten Video MenarikSponsored Content PostTikTok MarketingInfluencer MarketingDonasi atau Payout CoinsJasa Pengelola Akun atau TikTok ManagerPromosi MusikPengarahan Tarif ke Platform laindan masih banyak lagi
+The third wave has transformed coffee shops into vibrant spaces where conversations are sparked, friendships are forged, and ideas are born. It is a movement that celebrates craftsmanship, quality, and the exploration of flavor. With its focus on sustainability and ethical practices, the third wave coffee movement has helped reshape the relationship between coffee producers, consumers, and the environment.
 
-Cara-cara di atas dapat dilakukan dengan mudah untuk mendapatkan uang dari TikTok. Berikut pembahasan cara mendapatkan uang dari TikTok bagi pemula yang mungkin akan sangat bermanfaat untuk Anda yang baru saja mengunduh aplikasi TikTok.
+As the third wave continues to sweep across the globe, coffee is no longer just a beverage; it is an experience. It is an invitation to savor the distinctive flavors and aromas, to appreciate the hard work of the farmers and the dedication of the roasters and baristas. It is a journey that takes us from the humble coffee bean to a beautifully crafted cup, inviting us to slow down, indulge our senses, and immerse ourselves in the world of artisanal coffee.
 
-#1. Melihat Konten Video
----------------------
+In conclusion, the rise of the third wave coffee movement has been a transformative force in the coffee industry. It has redefined the way we perceive, consume, and appreciate coffee. With its emphasis on sustainability, transparency, craftsmanship, and flavor exploration, the third wave has elevated coffee from a mere commodity to an art form, inviting us to embark on a journey of taste, culture, and discovery.
 
-Cara pertama yang bisa Anda lakukan untuk mendapatkan penghasilan tambahan dari TikTok dapat dilakukan dengan sangat mudah dan tanpa ribet sama sekali. Anda hanya perlu melihat atau menonton video-video yang ada di dalam aplikasi TikTok maka Anda akan mendapatkan poin yang nantinya dapat ditukar menjadi uang. Jumlah poin yang Anda terima sesuai dengan durasi waktu menonton video tersebut. Semakin lama menonton video, maka poin yang Anda dapatkan pun akan semakin banyak.
+**Sources:** 
 
-#2. Share Kode Referral
----------------------
-
-Selain mendapatkan tambahan uang dengan menonton video dari Tiktok, Anda juga mendapatkan uang dengan cara mengajak teman-teman Anda untuk bergabung menggunakan TikTok sebanyak-banyaknya. Caranya yaitu dengan menyebarkan link dan kode referral yang akan digunakan untuk mendaftarkan diri dan membuat akun TikTok. 
-
-Semakin banyak mengajak orang untuk bergabung dan membuat akun TikTok, maka akan semakin besar pula peluang Anda untuk mengumpulkan banyak poin.
-
-#3. Membuat Konten Video Menarik
----------------------
-
-Tidak jauh berbeda dengan cara pertama untuk mendapatkan uang dari aplikasi TikTok, pada cara berikut ini Anda sebagai pengguna dapat memaksimalkan penggunaan TikTok untuk berkreasi dengan  cara membuat video konten yang nantinya bisa menghasilkan banyak poin dan bisa ditukarkan dengan banyak uang pula. 
-
-Terlebih jika hasil kreasi konten video yang Anda buat dan Anda unggah pada aplikasi TikTok menjadi viral dan ditonton oleh banyak orang, hal tersebut akan memperbanyak jumlah poin yang akan Anda terima. Untuk satu video saja biasanya Anda akan mendapatkan sekitar 3 ribu poin. Bayangkan jika dalam waktu sehari Anda bisa membuat lebih dari satu video maka poin yang Anda kumpulkan akan semakin banyak dan berlimpah. 
-
-Meskipun demikian, membuat konten video yang menarik memang tidak mudah dilakukan, selain itu video juga akan lebih baik jika memiliki manfaat bagi penonton atau pengguna TikTok lainnya.
-
-#4. Membangun Branding
----------------------
-
-Branding atau merek dalam hal ini adalah jati diri pengguna TikTok, Anda dapat membuat kesan yang menarik mengenai akun TikTok yang Anda gunakan. Misalnya, Anda harus memiliki konsistensi gambaran tentang jenis video yang akan Anda posting. 
-
-Selain itu, Anda harus memiliki target pasar yang jelas, siapa pengguna TikTok yang akan disasar dan berpotensi untuk menyukai konten yang Anda buat. Anda bisa memulai branding ini dengan menentukan sedari awal mengenai tema konten-konten video Anda apakah bertema romantisme, edukasi, hiburan, travelling, kuliner, atau sebagainya. 
-
-#5. Perbanyak Followers
----------------------
-
-Konten yang bagus dan unik tentunya akan dapat menarik banyak pengikut atau follower. Cara terbaik untuk mendapatkan pengikut yang banyak adalah dengan melihat kondisi target pasar dan memahami apa yang sedang hangat atau apa yang sedang dibutuhkan target pasar tersebut. Anda bisa mengunggah konten-konten berkualitas tersebut beberapa kali dalam sehari.
-
-#6. Menjadi influencer TikTok
----------------------
-
-Influencer TikTok memiliki job desc yang sama dengan influencer-influencer pada platform media sosial lainnya seperti mempromosikan produk, merk, atau layanan suatu perusahaan dengan harapan dapat meningkatkan angka penjualan. Semakin banyak followers yang Anda miliki, maka akan semakin tinggi honor Anda sebagai influencer TikTok.
-
-Itulah beberapa cara mendapatkan uang dari TikTok yang bisa Anda lakukan Semoga bermanfaat.
-
-**Sumber:** `Kalkulator Uang TikTok <https://www.autobild.co.id/p/kalkulator-tiktok.html>`_
+- `Coffe Shop Dudelange Luxembourg <https://www.knot35.com/toplist/top-10-best-coffee-shop-near-dudelange-luxembourg/>`_
+- `Third Wave Coffee <https://en.wikipedia.org/wiki/Third-wave_coffee>`_

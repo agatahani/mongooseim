@@ -37,6 +37,7 @@ Contents
    :maxdepth: 2
 
    eco-friendly/index
+   self-service/index
 
 **Sources:** 
 

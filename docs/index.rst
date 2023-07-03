@@ -38,6 +38,7 @@ Contents
 
    eco-friendly/index
    self-service/index
+   History/index
 
 **Sources:** 
 

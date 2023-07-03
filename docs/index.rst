@@ -30,6 +30,14 @@ As environmental consciousness rises, the waterless car wash has emerged as a su
 
 In conclusion, the car wash industry has seen remarkable developments, offering an array of options to cater to diverse preferences and needs. Whether it's adopting eco-friendly practices, enjoying the freedom of self-service, experiencing mobile detailing at the doorstep, indulging in meticulous car detailing, or embracing the waterless revolution, there is a car wash solution for everyone. By exploring these popular topics, car owners can make informed decisions, ensuring their vehicles shine brilliantly while being kinder to the environment.
 
+Contents
+-----------------
+
+.. toctree::
+   :maxdepth: 2
+
+   eco-friendly/index
+
 **Sources:** 
 
 - `Car Wash Near United States <https://www.auto.or.id/>`_
